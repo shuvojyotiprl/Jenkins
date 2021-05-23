@@ -1,0 +1,1 @@
+I am enjoying this summar working at Oracle .
